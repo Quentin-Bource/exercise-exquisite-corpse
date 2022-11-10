@@ -8,4 +8,10 @@ Il ravageait des **maisons**, des *villages*, ***villes***
 
 - **AU SECOURS**, SAUVEZ-NOUS ! 
 
-Et le petit garçon **pleurait** car il ne voulait pas faire tous ces dégâts... 
+Et le petit garçon **pleurait** car il ne voulait pas faire tous ces dégâts...
+
+Un jour il entendit uen petite fille crier **GARCON ! Je veux toucher les nuages, ils ont l'air si doux!**
+
+L'enfant n'hésita pas, il placa la petite fille sur ses épaules, et ***émerveillée***,
+
+elle les comtempla pendant *des heures*. 
